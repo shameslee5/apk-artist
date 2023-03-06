@@ -1,1 +1,1 @@
-# apk-artist
+Maybe you want to download an app that's yet to be released on any app store, or you want an app that's not available in your region, or you want an app that's banned on the popular app stores (gasp). Whatever the reason, downloading APKs are safe, provided you get them from trusted websites.[apk-artist](https://apkartist.com/)
